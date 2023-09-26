@@ -1,1 +1,1 @@
-# comic-3
+# PRO-C157-Student-Activity
